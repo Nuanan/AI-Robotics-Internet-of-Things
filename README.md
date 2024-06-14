@@ -1,0 +1,1 @@
+Robotics technology innovation and development, research on smart glasses for the blind, research on intelligent robots to help the elderly care industry, liberate the pressure of caregivers, liberate the psychology and mobility of the elderly, research on Internet of Things technology and provide related equipment supply chain
